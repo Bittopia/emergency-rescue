@@ -33,6 +33,8 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 - Globalization has placed most countries in a situation where they have to rely on others to produce their goods. We all are aware that this is the case with our relation regarding China. China has paused certain shipments to the US as they are blaming the US for the production of the virus. If the CCP ceases the supply of all major products, you will not have the necessary components to continue a "normal" life.
 
+- Vitamin D3 Suppliments (see clif high speaking about the importance of this: https://youtu.be/zoDx5QdSdrY?t=2940)
+
 - There are already a few countries going into martial law. Meaning that civil law and police are replaced with the military. This could be used to further direct the herd. 
 
 - The notion that is will go away once we are in summer and the temperatures are warmer is garbage. It is already spreading to parts of the world where it is summer or is tropical. Watch Cliff High and his view on this.
