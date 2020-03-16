@@ -10,7 +10,7 @@ I have found that the virus is designed to target people with Vitamin C and D de
 
 > "Smokers have more difficulty absorbing nutrients than non-smokers. In addition to absorbing the toxins from cigarette smoke, smokers are inhaling nutrient thieves that rob them of some of the vitamins and minerals that are necessary to fight off the ill effects of smoking. Smoking robs the body of the antioxidant vitamin C. It's believed that smokers need 35 milligrams more vitamin C each day than nonsmokers.
 > 
-> Smoking also can rob the body of vitamin D, a nutrient that helps develop strong immune systems, prevent autoimmune disorders, and regulate the release of insulin. Vitamin D also helps the body absorb bone-strengthening calcium, so smoking leads to a higher risk of osteoporosis."
+> Smoking also can rob the body of vitamin D, a nutrient that helps develop strong immune systems, prevent autoimmune disorders, and regulate the release of insulin. Vitamin D also helps the body absorb bone-strengthening calcium, so smoking leads to a higher risk of osteoporosis." Source: https://www.mnn.com/food/healthy-eating/blogs/why-you-should-watch-out-nutrient-thieves
 
 The above also applies to sugar, coffee, alcohol, and stress. The perfect cocktail of the modern style of life. This is why many are saying this is a bioweapon specifically designed to target the average modern human.
 
