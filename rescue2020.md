@@ -1,4 +1,4 @@
-# Year Zero
+# Year Zero: How to Survive
 
 I do not mean to alarm people, I am hoping things will all be fine, though as some of you may or may not know, I have spent more than a quarter of my life warning people about the dangers of centralization, preparing for what is happening right now. 
 
@@ -41,7 +41,7 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 - I believe that the situation in Cyprus was a test (where people were limited in how much money they can withdraw from an ATM per day after the 2008 GFC). As such, I believe the same will occur on a larger scale.
 
-- If you have the money, please purchase 1 Bitcoin per family. If you do not hold your private key for your bitcoin, you do not own your bitcoin, it's simple. if you purchased bitcoin on an exchange because you were used to convenience, then reverse this role and make sure you remove your coin(s) from exchanges or places that you purchased them and move them onto a hardware wallet or cold wallets (offline).
+- Exit the centralized stock market. If you have the money, please purchase 1 Bitcoin per family. If you do not hold your private key for your bitcoin, you do not own your bitcoin, it's simple. if you purchased bitcoin on an exchange because you were used to convenience, then reverse this role and make sure you remove your coin(s) from exchanges or places that you purchased them and move them onto a hardware wallet or cold wallets (offline).
 
 - Purchase physical gold and silver if possible. 
 
