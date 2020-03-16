@@ -65,6 +65,8 @@ info@bittopia.org
 
 **Encrypted Channels**
 
-Telegram https://t.me/bittopia_u Email: rescue2020@protonmail.com
+Telegram https://t.me/bittopia_u
+
+Email: rescue2020@protonmail.com
 
 IRC Channel: https://kiwiirc.com/nextclient/#irc://irc.freenode.com/#bittopia 
