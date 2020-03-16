@@ -59,7 +59,7 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 - I believe the international borders will come to close on a global scale. Place yourself where you need to be for some time. You may even be requested to return to your home country if travelling as a tourist. Whether you follow that request or not is your decision. 
 
-- Please do not let fear take over you. You may come to see ane experience some terrible things moving forward. Try and not follow the herd.
+- Please do not let fear take over you. You may come to see and experience some terrible things moving forward. No one but you can help you decide what to do. Be vigilant, try and not follow the herd. Think for yourself. 
 
 
 ---
@@ -85,3 +85,12 @@ rescue2020@protonmail.com
 
 IRC Channel: 
 https://kiwiirc.com/nextclient/#irc://irc.freenode.com/#bittopia 
+
+---
+
+**Other directions for boosting your immune system submitted by others**
+![](https://i.imgur.com/9nEx904.jpg)
+
+Link to products and source:
+https://www.srisriayurveda.eu/webshop/improve-immune-system.html
+
