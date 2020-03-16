@@ -57,15 +57,15 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 For direct help or assistance in exiting the centralized financial system and securing your assets in the form of cryptocurrencies, you can reach out to:
 
-Community Chat 
+Community Chat: 
 https://campus.bittpoia.org 
 
-Email
+Email:
 info@bittopia.org
 
 **Encrypted Channels**
 
-Telegram 
+Telegram: 
 https://t.me/bittopia_u
 
 Email: 
