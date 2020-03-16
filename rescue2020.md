@@ -1,3 +1,8 @@
+Document Date: 16th March 2020
+Last Updated: 16th March 22:52 CET
+
+Note: This document will be updated over time. Feel free to comment or contribute to the content.
+
 # Year Zero: How to Survive
 
 I do not mean to alarm people, I am hoping things will all be fine, though as some of you may or may not know, I have spent more than a quarter of my life warning people about the dangers of centralization, preparing for what is happening right now. 
@@ -31,9 +36,9 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 > "It is very important to break through the cognitive dissonance and mental barriers early because we have not experienced it yet. Testing is useless, quarantine is useless. We need to be adults until we actually face that its a bio-weapon and you can't run away from it, there is only one resource available to us at the moment and that is to harden ourselves individually and enact those firebreaks and its progression, and assume we are going to get exposed and say yeh, so what, who cares, that bastard can't get in me, I got so much vitamin C and Chaga in me, it'll die..." -- Clif High
 
-- Globalization has placed most countries in a situation where they have to rely on others to produce their goods. We all are aware that this is the case with our relation regarding China. China has paused certain shipments to the US as they are blaming the US for the production of the virus. If the CCP ceases the supply of all major products, you will not have the necessary components to continue a "normal" life.
-
 - Vitamin D3 Suppliments (see clif high speaking about the importance of this: https://youtu.be/zoDx5QdSdrY?t=2940)
+
+- Globalization has placed most countries in a situation where they have to rely on others to produce their goods. We all are aware that this is the case with our relation regarding China. China has paused certain shipments to the US as they are blaming the US for the production of the virus. If the CCP ceases the supply of all major products, you will not have the necessary components to continue a "normal" life.
 
 - There are already a few countries going into martial law. Meaning that civil law and police are replaced with the military. This could be used to further direct the herd. 
 
