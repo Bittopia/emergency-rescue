@@ -33,6 +33,8 @@ I know this is a bit much for a lot of people to comprehend, especially if this 
 
 - Globalization has placed most countries in a situation where they have to rely on others to produce their goods. We all are aware that this is the case with our relation regarding China. China has paused certain shipments to the US as they are blaming the US for the production of the virus. If the CCP ceases the supply of all major products, you will not have the necessary components to continue a "normal" life.
 
+- There are already a few countries going into martial law. Meaning that civil law and police are replaced with the military. This could be used to further direct the herd. 
+
 - The notion that is will go away once we are in summer and the temperatures are warmer is garbage. It is already spreading to parts of the world where it is summer or is tropical. Watch Cliff High and his view on this.
 
 - Hold onto cash if possible, in the form of USD. People are going to soon realise that the phantom money they were paying interest on never existed. That their fantasy world of economic growth and prosperity was based on nothing but debt. I believe shock will have a great impact on such people as opposed to people who are aware, or are or have lived through it. 92% of the world's money is digital. The banks have been giving out loans on money that never existed. As a bank only needs to hold 10% of what they lend. As in, they can loan out $1M and charge interest on that phantom money, while only having $100K in their reserve (this is how the global financial system works in a very simple way). There are already cases within Vienna of people increasing their ATM withdraws: https://www.zerohedge.com/markets/austrian-bank-job-begins-atm-usage-double-triple
