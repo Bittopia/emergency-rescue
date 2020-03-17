@@ -1,6 +1,6 @@
 Document Date: 16th March 2020
 
-Last Updated: 16th March 23:13 CET
+Last Updated: 17th March 20:00 CET
 
 Note: This document will be updated over time. Feel free to comment or contribute to the content.
 
@@ -87,7 +87,11 @@ IRC Channel:
 https://kiwiirc.com/nextclient/#irc://irc.freenode.com/#bittopia 
 
 ---
+### Open Source Devices
+**Low-Cost Open Source Ventilator**
+https://github.com/jcl5m1/ventilator
 
+### Immunity Boost
 **Other directions for boosting your immune system submitted by others**
 ![](https://i.imgur.com/9nEx904.jpg)
 
