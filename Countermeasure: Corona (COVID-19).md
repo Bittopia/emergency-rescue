@@ -136,7 +136,7 @@ Source: https://www.medicalnewstoday.com/releases/12154#1*
 
 <sup>4</sup> *Vitamin A to be consumed with food.*
 
-<sup>5</sup> Vitamin B6 is to be consumed on an empty stomach.
+<sup>5</sup> *Vitamin B6 is to be consumed on an empty stomach.*
 
 ## 5.0 References
 ### 5.1 Books
