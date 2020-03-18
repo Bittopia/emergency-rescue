@@ -94,8 +94,11 @@ There are four layers to your bodies defence system to fight bacterial infection
 
 
 *<sup>1</sup> Timeframe: within a few minutes.* 
+
 *<sup>4</sup> Timeframe: 1 hour or so.* 
+
 *<sup>3</sup> Timeframe: unknown.* 
+
 *<sup>4</sup> Timeframe: 3 to 4 days to produce more white blood cells. It is interesting to note that your bone marrow can increase the production of white blood cells 20 to 50 times the normal, depending on the severity of the situation.* 
 
 ## 3.0 General Precautions to Reduce Risk of Coronavirus Infection
