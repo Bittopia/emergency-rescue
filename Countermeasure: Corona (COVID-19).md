@@ -16,10 +16,17 @@ https://www.youtube.com/watch?v=u7YefBaeub4
 ## Content
 
 [1.0: What Are Coronaviruses and the Symptoms of Infection?](#10-What-Are-Coronaviruses-and-the-Symptoms-of-Infection)
+
 [2.0: How the Immune System Functions to Protect You From Infections](#20-How-the-Immune-System-Functions-to-Protect-You-From-Infections)
+
 [3.0: General Precautions to Reduce Risk of Coronavirus Infection](#30-General-Precautions-to-Reduce-Risk-of-Coronavirus-Infection)
+
 [4.0: How to Boost Your Immune System Against Coronavirus Infection](#40-How-to-Boost-Your-Immune-System-Against-Coronavirus-Infection)
+
 [5.0: References](#50-References)
+
+[6.0 Contribute](#60-Contribute)
+
 ## 1.0 What Are Coronaviruses and the Symptoms of Infection?
 
 ### 1.1 Coronavirus Family
@@ -198,3 +205,27 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6627200/
 https://portlandpress.com/biochemsoctrans/article/46/5/1147/67650/Vitamin-C-and-immune-cell-function-in-inflammation
 26) Effects of Vitamin B6 Deficiency on the Composition and Functional Potential of T Cell Populations
 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5358464/
+
+
+
+---
+
+## 6.0 Contribute
+**To reach out, you can use the following channels**
+
+Community Chat: 
+https://campus.bittpoia.org 
+
+Email:
+info@bittopia.org
+
+**Encrypted Channels**
+
+Telegram: 
+https://t.me/bittopia_u
+
+Email: 
+rescue2020@protonmail.com
+
+IRC Channel: 
+https://kiwiirc.com/nextclient/#irc://irc.freenode.com/#bittopia 
