@@ -1,6 +1,8 @@
 # Countermeasure: Corona (COVID-19)
 This document has been made following scientific findings and research. You can contribute to the document and findings at any time via Github or by reaching out to the links at the bottom of the document.
 
+> "Forces beyond your control can take away everything you possess except one thing, your freedom to choose how you respond to the situation" -Victor Frankl
+
 #### Source
 You can check the source of the information at the bottom of the article. 
 
