@@ -116,7 +116,7 @@ By following the rule of 10, you can boost the function of every single line of 
 3. Vitamin D | 1000 IU/day<sup>1</sup> 
 4. Zinc | 50-100 mg/day
 5. Avoid Sugars<sup>2</sup> 
-6. Vitamin C | 3000 mg/day
+6. Vitamin C | 3000 mg/day<sup>3</sup> 
 7. Flavonoids | 200 mg/day
 8. Vitamin A | 10,000-20,000 IU/day<sup>4</sup> 
 9. Vitamin E | 800 IU/day
