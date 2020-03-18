@@ -135,6 +135,7 @@ Source: https://www.medicalnewstoday.com/releases/12154#1*
 - Check Harrison`s Principals of Internal Medicine, Column 2, Page 2313.
 
 <sup>4</sup> *Vitamin A to be consumed with food.*
+
 <sup>5</sup> Vitamin B6 is to be consumed on an empty stomach.
 
 ## 5.0 References
