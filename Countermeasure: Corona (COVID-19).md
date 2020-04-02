@@ -396,7 +396,7 @@ Other alternatives to Chaga depending on your location:
 > - Chuchuasi, cat's claw, pau'de arco & others... Chuchuasi has the same effect of inhibiting CL protease against HIV as does Chaga.
 > 
 
-[**Chuchuhuasi or “Tree of Life” in Venezuela**](https://www.life-enthusiast.com/articles/chuchuhuasi/)
+[Chuchuhuasi or “Tree of Life” in Venezuela](https://www.life-enthusiast.com/articles/chuchuhuasi/)
 
 ### 7.2 Elderberry
 > Rubini elderberry liquid extract is active against human pathogenic bacteria as well as influenza viruses. The activities shown suggest that additional and alternative approaches to combat infections might be provided by this natural product.
