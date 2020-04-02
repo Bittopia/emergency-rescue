@@ -20,7 +20,7 @@ This document has been updated on April 2, 2020, to include additional content s
 
 ## Changelog
 
-2<sup>nd</sup>April 2020
+2<sup>nd</sup> April 2020
 
 * Vitamin C depletion and production.
 * Vitamin D details and reasons for deficiencies.
